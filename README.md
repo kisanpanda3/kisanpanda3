@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kisanpanda3@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QmwbRpy1Vu9FrFqSppI0kQfAW6VM88if/view?usp=sharing](https://drive.google.com/file/d/1QmwbRpy1Vu9FrFqSppI0kQfAW6VM88if/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yr-gSzfAd7YPM0cI8GkczveProxsP1VI/view?usp=sharing](https://drive.google.com/file/d/1yr-gSzfAd7YPM0cI8GkczveProxsP1VI/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
